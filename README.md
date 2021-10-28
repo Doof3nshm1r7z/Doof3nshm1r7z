@@ -1,5 +1,6 @@
 <h1 align="center">Hi 👋, I'm Doof3nshm1r7z</h1>
-- 🔭 I’m currently working on **something**
+
+- 🔭 I’m currently working on something
 
 - 🌱 I’m currently learning **something**
 
