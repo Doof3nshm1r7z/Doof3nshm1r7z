@@ -6,8 +6,8 @@
 
 - 👯 I’m looking to collaborate on **nothing**
 
-- 🤝 I’m looking for help with **nothing**
+- 🤝 I’m looking for help with **nothing`
 
-- 👨‍💻 All of my projects are available at [i dont have a project yet...](i dont have a project yet...)
+- 📫 How to reach me **Doof3nshm1r7z@protonmail.com**
 
 - 💬 Ask me about **something**
